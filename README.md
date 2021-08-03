@@ -7,4 +7,3 @@
 - 💬 Ask me about ... any related stuf
 - 📫 How to reach me: ...E-mail: lindosmahadi@gmail.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ... I spend almost 6 hours for higher software Developing
